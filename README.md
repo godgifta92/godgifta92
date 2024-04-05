@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @godgifta92
-- 👀 I’m interested in leaarning new things 
+- 👀 I’m interested in learning new things 
 - 🌱 I’m currently learning software development
 - 💞️ I’m looking to collaborate (pending)
 - 📫 How to reach me on +2347034133972 via Whatsapp or godgifta92@gmail.com
